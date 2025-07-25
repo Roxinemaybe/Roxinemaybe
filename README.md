@@ -18,7 +18,8 @@
 
 ᯓ★ "𝘐 𝘸𝘪𝘭𝘭 𝘯𝘦𝘷𝘦𝘳 (𝘐 𝘸𝘪𝘭𝘭 𝘯𝘦𝘷𝘦𝘳), 𝘧𝘳𝘦𝘦 𝘺𝘰𝘶. (𝘧𝘳𝘦𝘦 𝘺𝘰𝘶.) 𝘏𝘢𝘯𝘥 𝘪𝘯 𝘩𝘢𝘯𝘥. (𝘏𝘢𝘯𝘥 𝘪𝘯 𝘩𝘢𝘯𝘥.)"
  ᯓ★
-<img width="960" height="480" alt="image" src="https://github.com/user-attachments/assets/009d53ae-861d-4436-9653-9426d06f6997" />
+<img width="1196" height="199" alt="image" src="https://github.com/user-attachments/assets/751176ba-a00e-457c-bcf4-b076c5966f83" />
+
 
 
 
@@ -44,7 +45,8 @@
               ────୨ৎ────
               
               - ROX ♡
-<img width="960" height="480" alt="image" src="https://github.com/user-attachments/assets/bedf4468-5b54-497c-b380-65a8005afd2a" />
+<img width="1196" height="199" alt="image" src="https://github.com/user-attachments/assets/90e89f9f-3624-4a5b-bd50-5217e9e9e5da" />
+
 
 
 
