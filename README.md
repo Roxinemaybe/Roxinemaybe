@@ -16,10 +16,11 @@
 
 
 
-ᯓ★ "𝙁𝙁𝙁𝙊𝙊𝙊𝘾𝘾𝙐𝙐𝙎𝙎𝙎 𝙊𝙉 𝙈𝙀𝙀!~ 𝙄'𝙡𝙡 𝙗𝙚, 𝘼𝙇𝙇 𝙏𝙃𝘼𝙏 𝙏𝙃𝙀𝙔 𝙎𝙀𝙀𝙀𝙀𝙀!~"
+ᯓ★ "𝙄'𝙢 𝙞𝙣 𝙩𝙝𝙚 𝙨𝙩𝙖𝙠𝙞𝙣' 𝙗𝙖𝙧, 𝙄 𝙜𝙤𝙩 𝙙𝙚𝙗𝙩𝙨, 𝙄'𝙢 𝙖 𝙙𝙚𝙗𝙖𝙨𝙚𝙧."
  ᯓ★
- 
-<img width="426" height="42" alt="image" src="https://github.com/user-attachments/assets/2266bf8c-82cc-4701-a303-4272efeea1b5" />
+![_𝖢𝖮　╱ 　𝖢𝖱𝖴𝖲𝖧𝖤𝖱　☆ 453](https://github.com/user-attachments/assets/e62bf817-cc22-41a7-8b29-adb1bcc7a579)
+
+
 
 
 
@@ -48,7 +49,7 @@
               ────୨ৎ────
               
               - ROX ♡
-<img width="426" height="42" alt="image" src="https://github.com/user-attachments/assets/14a520f2-f55c-47c8-847d-67d53012a404" />
+<img width="1670" height="459" alt="image" src="https://github.com/user-attachments/assets/91603064-801b-42ba-986a-c1201564306c" />
 
 
 
