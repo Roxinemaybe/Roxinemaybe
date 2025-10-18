@@ -18,7 +18,8 @@
 
 ᯓ★ "(𝙍𝙚𝙗𝙤𝙤𝙩 𝙖𝙨 𝙨𝙤𝙤𝙣 𝙖𝙨 𝙄 𝙖𝙢 𝙖-𝙖-𝙖𝙗𝙡𝙚!) 𝙀𝙫𝙚𝙧𝙮 𝙤𝙩𝙝𝙚𝙧 𝙙𝙖𝙮 𝙄'𝙢 𝙬𝙤𝙣𝙙𝙚𝙧𝙞𝙣𝙜, 𝙬𝙝𝙖𝙩𝙨 𝙖 𝙝𝙪𝙢𝙖𝙣 𝙗𝙚𝙞𝙣𝙜 𝙜𝙤𝙩𝙩𝙖 𝙗𝙚 𝙡𝙞𝙠𝙚?"
  ᯓ★
-![_𝖢𝖮　╱ 　𝖢𝖱𝖴𝖲𝖧𝖤𝖱　☆ 453](https://github.com/user-attachments/assets/e62bf817-cc22-41a7-8b29-adb1bcc7a579)
+<img width="3508" height="1634" alt="image" src="https://github.com/user-attachments/assets/73ab03c7-beb8-438a-a38c-10ce9abf13f3" />
+
 
 
 
@@ -49,7 +50,8 @@
               ────୨ৎ────
               
               - ROX ♡
-<img width="1670" height="459" alt="image" src="https://github.com/user-attachments/assets/91603064-801b-42ba-986a-c1201564306c" />
+<img width="3508" height="1634" alt="image" src="https://github.com/user-attachments/assets/d8bf6393-c00f-4a1d-abac-869c027ae407" />
+
 
 
 
