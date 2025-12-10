@@ -16,9 +16,9 @@
 
 
 
-ᯓ★ "(𝙍𝙚𝙗𝙤𝙤𝙩 𝙖𝙨 𝙨𝙤𝙤𝙣 𝙖𝙨 𝙄 𝙖𝙢 𝙖-𝙖-𝙖𝙗𝙡𝙚!) 𝙀𝙫𝙚𝙧𝙮 𝙤𝙩𝙝𝙚𝙧 𝙙𝙖𝙮 𝙄'𝙢 𝙬𝙤𝙣𝙙𝙚𝙧𝙞𝙣𝙜, 𝙬𝙝𝙖𝙩𝙨 𝙖 𝙝𝙪𝙢𝙖𝙣 𝙗𝙚𝙞𝙣𝙜 𝙜𝙤𝙩𝙩𝙖 𝙗𝙚 𝙡𝙞𝙠𝙚?"
+ᯓ★ "𝙊𝙣𝙘𝙚 𝙬𝙚 𝙜𝙚𝙩 𝙪𝙥 𝙩𝙝𝙚𝙧𝙚..."
  ᯓ★
-<img width="3508" height="1634" alt="image" src="https://github.com/user-attachments/assets/73ab03c7-beb8-438a-a38c-10ce9abf13f3" />
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/2d7ae5a9-acfe-4315-bfc7-4f7fd266d910" />
 
 
 
@@ -50,7 +50,8 @@
               ────୨ৎ────
               
               - ROX ♡
-<img width="3508" height="1634" alt="image" src="https://github.com/user-attachments/assets/d8bf6393-c00f-4a1d-abac-869c027ae407" />
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/9fd26f7b-c246-4f85-bf5a-e44cfe304c1f" />
+
 
 
 
