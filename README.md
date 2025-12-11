@@ -33,7 +33,7 @@
 
   ✩ ────୨ৎ──── Welcome!! ────୨ৎ──── ✩
   
-              ☾✧ - ;; I don't use PT often but if your here, you probably saw me on it :3
+              ☾✧ - ;; I don't use PT often but if your here, you probably saw me on it !
 
              
               ☾✧ - ;; I'll usually be at docks, undertale area, or well- anywhere really..
@@ -46,7 +46,7 @@
               ˗ˏˋ I do not believe in TD/TT. ˎˊ˗
 
               
-              ⊹₊⟡⋆ If you see me ingame, don't be afraid to say hi!! ฅ^>⩊<^ ฅ ⊹₊⟡⋆
+              ⊹₊⟡⋆ If you see me ingame, don't be afraid to say hi! ^_^ (I'm more afraid of you than you are of me)
               ────୨ৎ────
               
               - ROX ♡
